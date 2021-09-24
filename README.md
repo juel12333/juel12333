@@ -1,0 +1,3 @@
+- 👋 Hi, I’m JUEL
+-
+- 🌱 I’m currently PURSUING B.TECH in CSE
