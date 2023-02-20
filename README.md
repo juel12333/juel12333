@@ -1,3 +1,3 @@
 - 👋 Hi, I’m JUEL
 -
-- 🌱 I’m currently PURSUING B.TECH in CSE
+- 🌱 I HAVE COMPLETED MY BECHALOR IN COMPUTER SCIENCE 
